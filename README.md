@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bxsscript
+- 👀 I’m interested in making scripts for roblox making injectors etc 
+- 🌱 I’m currently learning all computer lanquages...
+- 💞️ I’m looking to collaborate on all roblox scripting community
+- 📫 How to reach me on discord lame#5765...
+
